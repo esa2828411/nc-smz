@@ -110,3 +110,26 @@
 | [[Tamayuki] Celestine Lucross](https://alex1988.1hh.icu/home/book/index/id/14413) | https://alex1988.1hh.icu/home/book/index/id/14413 |
 | [Tiny Asa - Mai Shiranui](https://alex1988.1hh.icu/home/book/index/id/14410) | https://alex1988.1hh.icu/home/book/index/id/14410 |
 | [G-エッヂ Vol.052](https://alex1988.1hh.icu/home/book/index/id/14409) | https://alex1988.1hh.icu/home/book/index/id/14409 |
+| [Byoru - Nyotengu Martini (Dead or Alive)](https://alex1988.1hh.icu/home/book/index/id/14405) | https://alex1988.1hh.icu/home/book/index/id/14405 |
+| [G-エッヂ Vol.053](https://alex1988.1hh.icu/home/book/index/id/14402) | https://alex1988.1hh.icu/home/book/index/id/14402 |
+| [[ryota tanaka] 逆轉S2番外 IF-夏林篇](https://alex1988.1hh.icu/home/book/index/id/14400) | https://alex1988.1hh.icu/home/book/index/id/14400 |
+| [[ReverendGreatLove] Mavuika](https://alex1988.1hh.icu/home/book/index/id/14398) | https://alex1988.1hh.icu/home/book/index/id/14398 |
+| [[ReverendGreatLove] Sakuya Sumeragi](https://alex1988.1hh.icu/home/book/index/id/14397) | https://alex1988.1hh.icu/home/book/index/id/14397 |
+| [[ReverendGreatLove] Rumia Tingel](https://alex1988.1hh.icu/home/book/index/id/14395) | https://alex1988.1hh.icu/home/book/index/id/14395 |
+| [[Lewis] part 2](https://alex1988.1hh.icu/home/book/index/id/14393) | https://alex1988.1hh.icu/home/book/index/id/14393 |
+| [[moriAAA] nikke](https://alex1988.1hh.icu/home/book/index/id/14391) | https://alex1988.1hh.icu/home/book/index/id/14391 |
+| [XMC Maki Nishikino(EX)](https://alex1988.1hh.icu/home/book/index/id/14389) | https://alex1988.1hh.icu/home/book/index/id/14389 |
+| [[ReverendGreatLove] Djeeta](https://alex1988.1hh.icu/home/book/index/id/14388) | https://alex1988.1hh.icu/home/book/index/id/14388 |
+| [[Lewis] part 1](https://alex1988.1hh.icu/home/book/index/id/14383) | https://alex1988.1hh.icu/home/book/index/id/14383 |
+| [[lc13AI]129古関ウイ](https://alex1988.1hh.icu/home/book/index/id/14380) | https://alex1988.1hh.icu/home/book/index/id/14380 |
+| [[ryota tanaka] 逆轉S2 03](https://alex1988.1hh.icu/home/book/index/id/14378) | https://alex1988.1hh.icu/home/book/index/id/14378 |
+| [[ryota tanaka] 青鸾殇-秦璐篇07&amp;amp;方岚篇01](https://alex1988.1hh.icu/home/book/index/id/14377) | https://alex1988.1hh.icu/home/book/index/id/14377 |
+| [[XMC] Asuna (SAO)](https://alex1988.1hh.icu/home/book/index/id/14376) | https://alex1988.1hh.icu/home/book/index/id/14376 |
+| [[XMC] Emilia(EX)](https://alex1988.1hh.icu/home/book/index/id/14373) | https://alex1988.1hh.icu/home/book/index/id/14373 |
+| [[UnrealBeautyAIMIX] Goblin Slayer - Sword Maiden (Patreon) [Ai Generated]](https://alex1988.1hh.icu/home/book/index/id/14370) | https://alex1988.1hh.icu/home/book/index/id/14370 |
+| [[XMC] Belfast](https://alex1988.1hh.icu/home/book/index/id/14369) | https://alex1988.1hh.icu/home/book/index/id/14369 |
+| [[UnrealBeautyAIMIX] My Dress-up Darling - Marin Kitagawa (Patreon) [Ai Generated]](https://alex1988.1hh.icu/home/book/index/id/14368) | https://alex1988.1hh.icu/home/book/index/id/14368 |
+| [[XMC] 南夢芽](https://alex1988.1hh.icu/home/book/index/id/14367) | https://alex1988.1hh.icu/home/book/index/id/14367 |
+| [TiTi 鈦合金 鬼神禄](https://alex1988.1hh.icu/home/book/index/id/14364) | https://alex1988.1hh.icu/home/book/index/id/14364 |
+| [[C105][Aqua]KuroInu](https://alex1988.1hh.icu/home/book/index/id/14362) | https://alex1988.1hh.icu/home/book/index/id/14362 |
+| [TiTi 鈦合金 英梨梨定制](https://alex1988.1hh.icu/home/book/index/id/14359) | https://alex1988.1hh.icu/home/book/index/id/14359 |
